@@ -1,5 +1,5 @@
 Thanks for checking out my brain dump.
 
-Feel free to click around, or email me at [smithtylern.dev@gmail.com].
+Feel free to click around, or [send me an email](mailto:smithtylern.dev@gmail.com).
 
 Go Phils.
