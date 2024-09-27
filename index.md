@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Thanks for checking out my brain dump.
 
-Maybe say a some things about yourself.
+Feel free to click around, or email me at [smithtylern.dev@gmail.com].
 
-Or maybe what you plan to blog about.
+Go Phils.
