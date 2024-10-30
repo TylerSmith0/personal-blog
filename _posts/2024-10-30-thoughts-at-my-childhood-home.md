@@ -1,0 +1,17 @@
+# Thoughts While At My Childhood Home
+
+As we're awaiting the completion of our new home, which is scheduled to be this upcoming Monday, my wife and I have been staying with my parents alongside my siblings and even our roommate (shoutout to Taylor for being willing to bounce around while we wait for the house to complete). It's a weird time, and Sarah and I have chatted about some things regarding the whole financial process of this undergoing.
+
+First off, we can't help but feel like we're constantly getting "ripped off" everywhere we turn. It feels as if we're in an infinite used-car dealership, with every twist and turn of the home buying process sounding like "well, there's also XXX fee, and YYY fee, and…".
+
+Second, I'm finding that I am gaining a newfound appreciation to "control what's within one's control", however that doesn't mean I don't get frustrated at times. There are many aspects of this process where, were I the one running the show and managing the project, I'd do things very differently — however, I'm not the one running it, and so it's probably best that I just keep my mouth shut and worry about the things I actually have some sway over.
+
+Finally, we've commented on how there's a general acceptance in this country regarding fees and loans in that it's just "the way it is". It's a blatant rip-off, and people need to get their heads out of the sand and work to reduce the costs associated with taking out loans. The standardized closing cost list has helped us to see that there's a few things that you can "shop around" for (such as title lender insurance, which I'm absolutely going to try to build a solution around because that's a pretty hefty line item) however there are also many things that you simply cannot shop for, because of the lender you've chosen.
+
+This reinforces my gut feel that one day, I'd love to completely opt-out of this mortgage game. I love personal finance, and I'm an avid fan of people such as JL Collins and Dave Ramsey in the principles they teach about money and debt. Although some views are considered extreme and won't jive with everyone, I think regardless of who you agree with in particular, experts in general seem to align on saying that consumer debt (such as credit cards, car loans, personal loans, etc) are bad for one's personal financial health, and I'd even argue that a mortgage is in the same category, though not as low on the list of "scummy purchases".
+
+Since there's inherent value in the house you're purchasing, I'm obviously much more comfortable with leveraging myself more since the value is retained (and potentially increases over time) by the property itself.
+
+I do not agree with, however, the general notion that you'll always have a mortgage payment. I think that indicates a sense of lost hope, which I'm very much so against. I know FIRE purists will disagree, instead opting to invest any surplus in some index fund, but I'm going to plan to make additional payments with any excess money each month after budgeting to go straight towards the principal of the mortgage because of the general disgust that I have with this whole process.
+
+I intend to dig myself out of it, the same way Sarah and I dug ourselves out of over $140k of student loans: slowly, but surely.
